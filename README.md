@@ -1,2 +1,1 @@
-# Creative-Buddy
-We provide services Web Design, App Design, Logo Design, Branding, Illustrator Work
+Hi there, we are creative buddy design. A design agency based in Meerut. Our mission is to provide all the services for brand’s identity. Our motive is to always uplift your brands. We want to provide best services for brand in a significant amount.
